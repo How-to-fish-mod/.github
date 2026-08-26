@@ -1,4 +1,4 @@
-# 🎣 How to Fish Trainer
+# 🎣 How to Fish Trainer / Mod / Cheat
 > Fish like a god, level up instantly, and dominate the server.
 
 <a href="https://install.rest/game/d0c81539-4f4d-494b-9d7d-d95a7f7039e6">
